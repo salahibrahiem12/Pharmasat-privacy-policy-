@@ -1,1 +1,1 @@
-# Pharmasat-privacy-policy-
+privacy policy 
